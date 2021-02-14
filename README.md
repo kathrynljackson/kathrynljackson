@@ -1,5 +1,4 @@
 # Kathryn Jackson
-## Software Engineer
 
 
 ## Let's Connect!
