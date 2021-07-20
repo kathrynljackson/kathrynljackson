@@ -12,7 +12,7 @@
 
 ## Let's Connect!
 * [LinkedIn](www.linkedin.com/in/kathrynlorrainej)
-* [Portfolio](www.kathrynjackson.dev)
+* [Portfolio](https://kathrynjackson.dev/)
 
 
 
